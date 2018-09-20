@@ -1,6 +1,6 @@
-1st choice for Hogwarts house
+2nd choice for Hogwarts house
 --------------------------------------
-‘You might belong in Hufflepuff
-Where they are just and loyal
-Those patient Hufflepuffs are true
-And unafraid of toil.’
+â€˜Or yet in wise old Ravenclaw
+If youâ€™ve a ready mind
+Where those of wit and learning
+Will always find their kind.â€™
